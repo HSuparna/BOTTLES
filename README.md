@@ -1,3 +1,3 @@
 # BOTTLES
 
-Pictures ofcrushed aluminium cans and glass bottles
+Pictures of crushed aluminium cans and glass bottles
